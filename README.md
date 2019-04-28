@@ -1,4 +1,4 @@
-# AOSC-Moe
+# AOSC Jellychan — ジェリちゃん
 
 Tags: 果冻, 女装, 套娃
 
